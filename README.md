@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ludaalt.github.io/rsschool-cv/
